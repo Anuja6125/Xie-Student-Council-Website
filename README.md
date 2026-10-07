@@ -5,7 +5,7 @@
 
 ## 📞 Support
 
-For issues or questions, contact: Neil Umbarkar
+For issues or questions, contact: Neil Umbarkar, Anuja Rane
 
 ---
 
